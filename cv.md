@@ -10,5 +10,5 @@ _I'm a student of BSUIR and some facts about me:_
   - and many others
 
 You can find me on:\
-
 [Telegram](https://t.me/DarkVladius)
+[VK](https://vk.com/beerisgoodforhealth)
