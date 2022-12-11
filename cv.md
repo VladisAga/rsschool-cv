@@ -11,4 +11,4 @@ _I'm a student of BSUIR and some facts about me:_
 
 You can find me on:\
 [Telegram](https://t.me/DarkVladius)\
-![[VK](https://vk.com/beerisgoodforhealth)](pngwing.com (7))
+![[VK](https://vk.com/beerisgoodforhealth)](https://www.pinclipart.com/picdir/big/544-5446048_vk-logo-design-logo-media-sosial-png-clipart.png)
