@@ -9,6 +9,6 @@ _I'm a student of BSUIR and some facts about me:_
   - billiard
   - and many others
 
-You can find me on:\
+You can find me in:\
 [Telegram](https://t.me/DarkVladius)\
 [VK](https://vk.com/beerisgoodforhealth)
