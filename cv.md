@@ -14,4 +14,4 @@ You can find me on:\
     
 
 [def]: t.me/DarkVladius
-[Telegram][t.me/DarkVladius]
+[Telegram](t.me/DarkVladius)
