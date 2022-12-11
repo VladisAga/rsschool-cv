@@ -10,8 +10,5 @@ _I'm a student of BSUIR and some facts about me:_
   - and many others
 
 You can find me on:\
-[Telegram][def]
-    
 
-[def]: t.me/DarkVladius
 [Telegram](t.me/DarkVladius)
